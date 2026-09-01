@@ -1,4 +1,4 @@
-Hi, it's Oktays /oktays /yoshi /o4k741s * ! language ops etc
+Hi, it's Oktays /oktays /yoshi /o4k741s * ! language ops etc ?
 
 
 
@@ -9,3 +9,8 @@ https://linktr.ee/oktays
 https://linktr.ee/xaoex
 
 https://www.icloud.com/invites/0337sLAbWqu0-1wCD6uRbl_DA
+
+
+also
+
+monad or? (of . also mom rasmus malin): ❇️ ✳️ 🛜 🆚  ！ ﹖
